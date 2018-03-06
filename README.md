@@ -1,2 +1,3 @@
 # funny1https://github.com/phaneendra2/funny1.git
 “We may eat the fruit of any tree in the garden, “the woman answered, “except the tree in the middle of it. God told us not to eat the fruit of that tree or even to touch it; if we do, we will die.”
+The woman saw how beautiful the fruit was and how good it would be to eat its fruit. She thought how wonderful it would be to become wise. She took some fruits and ate it. And also took for her husband too. Adam also ate it. Soon after eating the fruit they realized that they were naked. They tried covering their body with the leaves and in the bush. 
